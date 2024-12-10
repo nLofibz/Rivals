@@ -1,6 +1,6 @@
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4fRXTsR)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/3OPznMY)***
 
 ![sddefault](https://github.com/user-attachments/assets/51c589ad-4aa9-48ce-99c0-bdf7e5d220a6)
 
